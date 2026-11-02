@@ -12,5 +12,4 @@
 </p>
 
 <p align="center">
-  yes thats my art
-  read me is wip 
+  yes thats my art. readme is wip 
