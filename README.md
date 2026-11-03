@@ -4,6 +4,11 @@
 <p align="center">
 </p>
 
+‎‎<p align="center">
+   <img src="https://file.garden/aSJbsl0SJQxLqVG5/tumblr_75df21f8ddf93d368874d052cd8dcd58_3630be60_640.gif" width="500"/>
+<p align="center">
+</p>
+
 <p align="center">
   <img src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled342_20261103093332.png">
 <p align="center">
