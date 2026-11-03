@@ -23,7 +23,7 @@
 <a href="https://rentry.co/mapleevodka">
   <img src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled342_20261103095757.png" width="200">
 </a>
-  <img src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled342_20261103095953.png" width="90">
+  <img src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled342_20261103100603.png" width="90">
 </a>
 <a href="https://maplevodka.atabook.org/">
   <img src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled342_20261103095845.png" width="200">
